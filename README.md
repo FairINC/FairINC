@@ -10,7 +10,7 @@
 
 📫 How to reach me ... Contact@BrewsBeyondBorders.org
 
-😄 Pronouns: ... They/Them
+😄 Pronouns: ... He/Him
 
 ⚡ Fun fact: ... Richard Stallman is one of the single most underappreciated creators in the world! Free Assange.
 
