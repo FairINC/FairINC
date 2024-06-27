@@ -12,7 +12,7 @@
 
 😄 Pronouns: ... He/Him
 
-⚡ Fun fact: ... Richard Stallman is one of the single most underappreciated creators in the world! Free Assange.
+⚡ Fun fact: ... Richard Stallman is one of the single most underappreciated creators in the world!
 
 ## Welcome to Brews Beyond Borders!
 
