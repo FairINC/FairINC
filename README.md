@@ -1,6 +1,6 @@
-# Brews Beyond Borders
+#FairINC
 
-👋 Hi, I’m @FairINC
+👋 Hi, I’m @FuzzyWaffler
 
 👀 I’m interested in ... Brewing, Plants, Mycelium, and Automating the boring things in life out.
 
